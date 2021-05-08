@@ -4,7 +4,7 @@
 
 ##### ❤️ 👉 【地址一】 ：https://sepilao.xyz
 
-##### ❤️ 👉 【地址二】 ：https://www.sepilao.xyz
+##### ❤️ 👉 【地址二】 ：https://laosp01.xyz
 
 ##### ❤️ 👉 【邮箱联系方式】 ：woshilsp007@gmail.com
 
