@@ -4,7 +4,7 @@
 
 ##### ❤️ 👉 【地址一】 ：https://saojitv.xyz
 
-##### ❤️ 👉 【地址二】 ：https://saojitvfb.xyz
+##### ❤️ 👉 【全新极速视频站】 ：https://qq.com.lsbs.xyz
 
 ##### ❤️ 👉 【邮箱联系方式】 ：woshilsp007@gmail.com
 
