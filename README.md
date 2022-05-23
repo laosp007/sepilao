@@ -2,7 +2,7 @@
 
 ##### 😎😎最新发布地址😎😎
 
-##### ❤️ 👉 【地址一】 ：https://saojitv.xyz
+##### ❤️ 👉 【地址一】 ：https://qq.com.lsbs.xyz
 
 ##### ❤️ 👉 【全新极速视频站】 ：https://qq.com.lsbs.xyz
 
