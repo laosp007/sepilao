@@ -2,9 +2,9 @@
 
 ##### 😎😎最新发布地址😎😎
 
-##### ❤️ 👉 【地址一】 ：https://qq.com.lsbs.xyz
+##### ❤️ 👉 【反差俱乐部】 ：https://qq.com.lsbs.xyz
 
-##### ❤️ 👉 【全新极速视频站】 ：https://qq.com.lsbs.xyz
+##### ❤️ 👉 【全网极速视频站】 ：https://qq.com.lsbs.xyz
 
 ##### ❤️ 👉 【邮箱联系方式】 ：woshilsp007@gmail.com
 
