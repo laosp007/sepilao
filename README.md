@@ -4,7 +4,7 @@
 
 ##### ❤️ 👉 【反差俱乐部】 ：https://qq.com.fcsp.club
 
-##### ❤️ 👉 【全网极速视频站】 ：https://qq.com.lsbs.xyz
+##### ❤️ 👉 【全网极速视频站】 ：https://lsbs.xyz
 
 ##### ❤️ 👉 【邮箱联系方式】 ：woshilsp007@gmail.com
 
